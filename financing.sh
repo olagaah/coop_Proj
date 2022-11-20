@@ -1,0 +1,1 @@
+There is a gold mine in Africa with great potential to ensure the incoming generation is empowered
